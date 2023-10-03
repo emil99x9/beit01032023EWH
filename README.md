@@ -1,2 +1,2 @@
-# beit01032023EWH
-BEIT Kursus 
+# BEIT Kursus 
+- Indsæt alle mulige ord her! 
